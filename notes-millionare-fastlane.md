@@ -64,8 +64,8 @@
   - Limited choice is the name of the game
   - Slowlaners attempt to manipulate intrinsic value via education
 - Sidewalker deals with lifestyle servitude and slowlaner deals with education servitude
-- Gurus and financial advisors are guilt of the paradox of practice
-  - Do you practice what you preach
+- Gurus and financial advisors are guilty of the paradox of practice
+  - Do they practice what you preach
   - Beware that you&#39;re being sold one wealth equation while the player of the game uses another
   - Their wealth comes from your belief
 - Options in the Slowlane
